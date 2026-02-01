@@ -1,4 +1,4 @@
-### Hi there, I'm Nayan 👋
+### Hi there, I'm Nyano 👋
 
 
 [Twitter](https://twitter.com/greenNayan) || [Linkedin](https://www.linkedin.com/in/nayan-thapa-b30148144/n)
