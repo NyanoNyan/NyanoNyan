@@ -1,5 +1,6 @@
-### Hi there, I'm Nyano 👋
+### Nyano here!👋
 
+We keep on learning!
 
 [Twitter](https://twitter.com/greenNayan) || [Linkedin](https://www.linkedin.com/in/nayan-thapa-b30148144/n)
 <!--
