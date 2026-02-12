@@ -1,5 +1,7 @@
 ### Nyano here!👋
 
+One code a day to make me re-think about life.
+
 [Twitter](https://twitter.com/greenNayan) || [Linkedin](https://www.linkedin.com/in/nayan-thapa-b30148144/n)
 <!--
 **NyanoNyan/NyanoNyan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
